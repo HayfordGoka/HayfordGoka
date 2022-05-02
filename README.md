@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @HayfordGoka
 - 👀 I’m interested in graphic design 
-- 🌱 I’m currently learning at university of Ghana 
+- 🌱 I’m currently studying I.T at university of Ghana 
 - 💞️ I’m looking to connect and collaboration with other hubbers
 - 📫 How to reach me on 0547871701 via WhatsApp 
 
